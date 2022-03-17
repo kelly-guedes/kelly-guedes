@@ -25,7 +25,7 @@
 - 👯 Estudando na Growdev - Programa Starter
 - 🤔 Estou em busca de mudança de carreira
 - 💬 Pergunte-me sobre algo ...
-- 📫 Como me encontrar: guedes.kelly@icloud.com e 12 99704-1174
+- 📫 Como me encontrar: guedes.kelly@icloud.com e +5512 99704-1174
 - 😄 Pronomes: Ela/dela
 - ⚡ Curiosidades: Adoro viajar de carro, amo meu cachorro e sou uma artesã.
 -->
